@@ -1,2 +1,2 @@
 # Animalitos_Wonitos
-una wea
+ONG de adopción animal
